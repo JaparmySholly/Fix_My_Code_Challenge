@@ -1,1 +1,1 @@
-Challenge started
+Having fun.
